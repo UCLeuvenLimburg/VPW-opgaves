@@ -1,5 +1,7 @@
 # The Contest
 
+NOTE: Due to Coronavirus, the rules have changed. We refer you to the official site for the updated rules.
+
 There are 4 categories:
 
 * Cat1: high school students
